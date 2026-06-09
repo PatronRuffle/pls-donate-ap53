@@ -1,4 +1,4 @@
-#  
+#  pls donate advanced Scripts is the best pls donate Script, featuring private server access and fly. Safe and powerful for all your needs.
 
 
 
